@@ -1,1 +1,1 @@
-# project1
+salom  dunyo  qalesiz
